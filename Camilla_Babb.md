@@ -1,0 +1,1 @@
+Hello! I am very excited to be learning with Code:You. In my free time, I enjoy making art, crocheting, and reading.
