@@ -1,0 +1,1 @@
+My name is Shane Gray. I'm currently an applications developer at Dealer Trade Network. My educational background is in HTML, CSS, JS, React, Node.js, Next.js, and MySQL. I'm attending Code:You to try to further my C# dotnet skills, as that is the direction my company is moving for our internal tools.
