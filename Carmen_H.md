@@ -1,0 +1,1 @@
+I really enjoy reading a variety of books. Reading is one of my most favorite hobbies. Even though I am an introvert, I enjoy discussing books in my neighborhood bookclub.
