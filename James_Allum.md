@@ -1,0 +1,1 @@
+Hello! My name is James (I go by Jamie). I have recently moved to this country from the UK so I am excited to learn a new skill to develop a new career path! My hobbies are watching sports (mainly Soccer and Baseball) and listening to music!
