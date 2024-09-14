@@ -1,1 +1,1 @@
-HI, My name is Ricky Thomas. I'm from Hazard, KY and I love hiking, camping, cooking, gardening, learning programming, and my family. I work at Fedex currently and cannot wait to eventually have a more rewarding job!!
+HI, My name is Ricky Thomas. I'm from Hazard, KY and I love hiking, camping, cooking, gardening, learning programming, and my family. I Deliver packages for Fedex currently and cannot wait to eventually have a more rewarding job!!
