@@ -1,0 +1,1 @@
+Hi, I'm Amber.  I enjoy reading, knitting, all variety of music.  I'm old enough to know life before facebook, hahaha. 
