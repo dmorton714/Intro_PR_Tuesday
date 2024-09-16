@@ -1,0 +1,1 @@
+Hi y'all, I'm Kimberly Nicholas. Raised in Georgetown, KY, went to University of Kentucky, moved around the world and US then landed back in Louisville Kentucky in 2019. I enjoy traveling, cultures, langagues, and health and wellness.
