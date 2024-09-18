@@ -1,0 +1,1 @@
+I am learning new things and thankful for this class. I love learning, cooking, and crocheting!
