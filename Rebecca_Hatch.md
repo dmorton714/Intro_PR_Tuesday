@@ -1,0 +1,1 @@
+Hi! My Name is Becca and I'm excited to continue my adventure with Code:You. In my free time I love to hang out with my family, swim, camp, game, and oddly enough, read about mycology.
