@@ -1,0 +1,1 @@
+Hi my name is Angelynna Young, but I go by Angel. I am thinking of doing the Web Development pathway since I am familiar with JavaScript, CSS and HTML. I have been at my job for 4 years and would love to get a coding career. Because I LOVE coding!!
