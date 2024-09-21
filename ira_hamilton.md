@@ -1,0 +1,1 @@
+Heya, my name is Ira. I'm currently working in healthcare and am close to finishing my Bachelor of Public Health. My goal is to go into healthcare IT or health informatics and I am excited to for the opportunity to learn through Code:KY.
