@@ -1,0 +1,1 @@
+Hello! My name is Lambert Daniel-Marks. I'm enjoying learning Git and GitHub functionality, and I'm looking forward to moving into my chosen pathway. 

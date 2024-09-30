@@ -1,0 +1,1 @@
+Hey there :wave: I'm Amanda and I'm not sure what to write in this intro. I'm just doing this for the assignment at this point.
