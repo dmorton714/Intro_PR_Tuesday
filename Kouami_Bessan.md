@@ -1,0 +1,2 @@
+My name is Kouami Bessan, I moved to US 23 years ago. I am from west Africa, in country called Togo. It is situated between Ghana and Benin.
+I studied mechanical engineering at Speed school at University of Louisville. I am so exciting to learn coding with Code Louisville.
