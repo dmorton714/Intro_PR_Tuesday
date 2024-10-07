@@ -1,0 +1,1 @@
+My name is Mckenzi. Everyone calls me Kenzi. I have two black kitties named Beans and Booger. I like tattoos and face melting metal music. coding is harder than updating myspace pages. lol 
